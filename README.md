@@ -71,4 +71,4 @@ Results-driven **Data Scientist & Data Engineer** with 5+ years of experience en
 * **Email:** [akshayraut141096@gmail.com](mailto:akshayraut141096@gmail.com)
 * **LinkedIn:** [linkedin.com/in/YOUR_LINKEDIN_USERNAME](https://linkedin.com/in/YOUR_LINKEDIN_USERNAME)
 * **Location:** Pune, MH, India
-*
+
